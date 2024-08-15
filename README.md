@@ -6,9 +6,7 @@ Meu nome é camila
 
 • estou me desenvolvendo na linguagem JavaScript
 
-•utilizo esse espaço para minha organização e compartilhamento dos meus projetos em desenvolvimento
+•utilizo esse espaço para minha organização e compartilhamento dos meus projetos ♡
 
 
-https://tenor.com/qRx79IJsaLw.gif
-
-
+![](https://tenor.com/qRx79IJsaLw.gif)
